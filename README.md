@@ -1,3 +1,5 @@
+![1710975072079](https://github.com/user-attachments/assets/3824920a-0f7f-46f6-8436-63035da4590d)
+
 # 📊 **Hypotenuse AI** – Your Ultimate AI-Powered SEO Content Platform 🚀  
 
 **Hypotenuse AI** is a cutting-edge platform that **merges artificial intelligence with SEO analytics** to help you **generate high-performing content at scale**. Whether you're a marketer, blogger, or business owner, our tool ensures your content ranks higher, engages readers, and drives traffic—**all with minimal effort!**  
